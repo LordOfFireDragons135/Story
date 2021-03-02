@@ -1,1 +1,1 @@
-This is my story that I've been writing. The files are here to help me keep organized. :)
+This is my story that I've been writing. The files are here to help me keep organized. This is nothing fancy. As I just said, this is for me to keep myself organized with all my different files I have.
